@@ -9,4 +9,4 @@ https://i.imgur.com/8aZnm2y.png)
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/dennis-tonjoc-448830247/)
 
-### ⚡Fun facts: I enjoy studying and doing experiments in mechanics⚙️, agronomy🌱, chemistry⌬⚛, and electronics📟. Also i really love to make music🎼, singing and playing instruments(piano, guitar, drums)
+### ⚡Fun facts: I like history and enjoy studying and doing experiments in mechanics⚙️, agronomy🌱, chemistry⌬⚛, and electronics📟. Also i really love to make music🎼, singing and playing instruments(piano, guitar, drums)
